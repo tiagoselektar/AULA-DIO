@@ -14,6 +14,8 @@ Com o equilíbrio ameaçado, criaturas míticas passam a invadir vilas, espírit
 
 Um grupo de heróis improváveis é escolhido pelos espíritos da floresta para impedir a ruína do mundo.
 
+FONTES :
+https://notebooklm.google.com/notebook/72daa5a4-5a5d-4de9-9e8e-c35ae5c11177/preview
 Curadoria de Fontes:https://notebooklm.google.com/notebook/72daa5a4-5a5d-4de9-9e8e-c35ae5c11177/preview
 
 Miniguia de Estudo: PODE MIM DA UM RESUMO DA CIENCIA MODERNA 
